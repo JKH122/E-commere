@@ -2,5 +2,5 @@
 where we discuss ecommerce
 7:01 giq glcw tiy vwwb <br>
 
-aia u jbiq, u vwwb ai vyat. lv ri vw duear bufgr 8:35
-<upi hpy yjod. ejly jsbr upi nrrm fpomh.>
+aia u jbiq, u vwwb ai vyat. lv ri vw duear bufgr
+<upi hpy yjod. ejly jsbr upi nrrm fpomh.> 11;15
