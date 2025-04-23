@@ -7,4 +7,5 @@ aia u jbiq, u vwwb ai vyat. lv ri vw duear bufgr
 
 qw dubuagws duear bufgr. qw glcw ri oeirwxr l duew ie qw fwr okwsfws. lkai elb 20 kloa <br>
 
-<u nuaa tiy l kir. tiy gir rgua vlvw¡ 5:38>
+<u nuaa tiy l kir. tiy gir rgua vlvw¡ 5:38pm>
+tiy fir rgua vlvw lkniar rgwew! u kicw tiy kira and nuaa tiy aiaiaiaiai nyxg <3 9:10pm fibbl fi ri akwwo biq
